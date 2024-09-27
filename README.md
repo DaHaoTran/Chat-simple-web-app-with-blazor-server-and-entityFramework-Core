@@ -1,1 +1,1 @@
-Have video demo
+Has video demo
